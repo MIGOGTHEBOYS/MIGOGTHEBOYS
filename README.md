@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MIGOGTHEBOYS im from a danish youtube channel with name MIG OG THE BOYS YT
+- 👋 Hi, I’m @MIGOGTHEBOYS we are from a danish youtube channel with name MIG OG THE BOYS YT
 - 👀 I’m interested in ... discord, airsoft, real guns, knifes
 - 🌱 I’m currently learning ... i still go to primary school 5th grade
 -  I’m looking to collaborate on ... youtube videos and discord servers
